@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Elements501!
+# 👋 Hi there, I'm Alex!
 
 🎨 **A fresh canvas for new insanity**
 
